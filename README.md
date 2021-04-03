@@ -2,7 +2,7 @@ JANGAN LUPA LIKE ANDA SUBSCRIBE CHANNEL MBAH GADGET
 
 # RDP Windows 2019 Gratis 100%
 
-RDP Windows Gratis 6 Jam ON
+RDP Windows Gratis 1 Jam ON
 
 
 Buat RDP Windows Ram 7GB 2core cpu Dengan Github:
